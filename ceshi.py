@@ -1,3 +1,0 @@
-iiii
-pppp
-oooo
